@@ -11,4 +11,4 @@ DevOps Engineer (5+ yrs) → building toward AI Infrastructure / ML Platform Arc
 
 Teach what I learn → [sathiyancloud](https://www.sathiyancloud.in/)
 
-📍 Chennai, India · [LinkedIn](https://www.linkedin.com/in/sathiyan-baskaran/) · [Blog](https://sathiyan-baskaran.hashnode.dev/)
+📍 Chennai, India · [LinkedIn](https://www.linkedin.com/in/sathiyan-baskaran/)
